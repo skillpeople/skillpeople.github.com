@@ -1,1 +1,0 @@
-# skillpeople.github.com
